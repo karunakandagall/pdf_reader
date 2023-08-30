@@ -11,3 +11,14 @@ vaishnavipattar52@gmail.com
 
 Pooja Kumbar - 9148652575
 poojakumbar983@gmail.com
+
+Pooja Bagali - 8152053245
+bagalipooja04@gmail.com
+
+Farheen Matte - 8073323278
+farheenmatte51@gmail.com
+
+Pooja Magadum - 7760220758
+magadumpooja54@gmail.com
+
+
