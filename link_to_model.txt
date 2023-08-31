@@ -1,0 +1,3 @@
+https://huggingface.co/orel12/ggml-gpt4all-j-v1.3-groovy/tree/main
+
+Open the above link and then download the model third one over there
